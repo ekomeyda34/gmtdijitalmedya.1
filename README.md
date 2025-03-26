@@ -1,1 +1,0 @@
-# gmtdijitalmedya.1
